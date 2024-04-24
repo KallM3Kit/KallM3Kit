@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @KallM3Kit
-- 🌻 I’m interested in OMORI
+- 👋 Hi, I’m kit
+- 🌻 imma update this soon
 - 🌷 Pronouns: pronouns of the character i am cosplaying as
 - 🍃 Fun fact: This acc was made just for ponytown
 
