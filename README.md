@@ -1,6 +1,6 @@
-- 👋 Hi, I’m kit
-- 🌻 imma update this soon
-- 🌷 Pronouns: pronouns of the character i am cosplaying as
+- 👋 Heyo, I’m kit
+- 🌻 mg interests are omori, regretevator, phighting etc
+- 🌷 Pronouns: she/her
 - 🍃 Fun fact: This acc was made just for ponytown
 
 <!---
