@@ -1,5 +1,5 @@
 - 👋 Heyo, I’m kit
-- 🌻 mg interests are omori, regretevator, phighting etc
+- 🌻 my interests are omori, regretevator, phighting etc
 - 🌷 Pronouns: she/her
 - 🍃 Fun fact: This acc was made just for ponytown
 
